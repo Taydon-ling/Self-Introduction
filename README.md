@@ -8,7 +8,7 @@ My favourite sport is badminton. I won a badminton competition before.
 
 This is **Lee Chong Wei**, the most famous badminton player in Malaysia, he is the reason I play badminton.
 
-I like music, I like playing piano and guitar but I play piano better than guitar.
+I like music, I like playing piano and guitar but I play piano better than my guitar.
 
 I like games, My favourite game is Minecraft, I played it since I was 7 years old.
 
